@@ -1,3 +1,3 @@
 # ottercomet
 
-dont steal :)
+pls dont steal :)
